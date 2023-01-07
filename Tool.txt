@@ -1,0 +1,3 @@
+Twitter Valid Email Checker
+it will check your email list from a file.txt which is regestered with twitter and which is not .This tool support proxy and multithread. if you wanna buy this tool contact me via Telegram . 
+Telegram : @alexrony21
