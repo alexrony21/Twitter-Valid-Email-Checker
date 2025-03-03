@@ -13,8 +13,7 @@
 ---
 
 ## Contact:
-📩 **Purchase via Telegram:** [@alexrony21](https://t.me/alexrony21)  
+📩 **If you want to purchase,contact me via Telegram:** [@alexrony21](https://t.me/alexrony21)  
 
 ---
-
-**Thanks!**
+Thanks!
